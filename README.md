@@ -3,7 +3,7 @@
 Não se deixe influenciar pelos o que os outros pensam, não deixe que pessoas negativas lhe coloquem para baixo. 
 Divirta-se, faça pequenas loucuras, seja você mesmo!
 
-Ser feliz é uma escolha, não uma dádiva. Escolha ser feliz, escolha se amar, escolha ser otimista. 
+Ser feliz é uma escolha, não uma dádiva.<p>Escolha ser feliz, escolha se amar, escolha ser otimista<p/>
 Mantenha a sua mente positiva e ela irá atrair boas pessoas e boas coisas para você.
 
 A vida é curta e há tantas coisas para fazer. 
